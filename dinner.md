@@ -10,11 +10,11 @@
 
 ## Second course
 
-* Baked Scottish salmon with garlic crumb topping, served with roasted cauliflower and potatoes
+* Baked kabocha squash with sunflower-walnut stuffing served with roasted cauliflower and potatoes
 
 **or**
 
-* Beef tenderloin with horseradish sauce, served with a loaded baked potato and green beans
+* Rigatoni pasta with marinara sauce, served with garlic bread and green beans 
 
 ## Dessert
 
