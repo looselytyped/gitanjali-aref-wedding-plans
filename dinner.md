@@ -10,7 +10,7 @@
 
 ## Second course
 
-* Baked kabocha squash with sunflower-walnut stuffing served with roasted cauliflower and potatoes
+* Baked kabocha squash with herbed ciabatta stuffing served with roasted cauliflower and potatoes
 
 **or**
 
@@ -22,4 +22,4 @@
 
 **or**
 
-* Almond-raspberry tart
+* Raspberry tart
