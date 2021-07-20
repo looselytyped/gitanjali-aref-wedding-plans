@@ -1,8 +1,8 @@
 # Gitanjali and Aref Reception: Signature Drinks
 
-* The Manhattan Merge: 
-  Two become one in this updated take on a classic bourbon-vermouth cocktail
-* The Git Gimlet: 
-  Gitanjali’s favorite drink, with refreshing lime and juniper notes 
-* The Git Log Cabin: 
-  Apple brandy and maple syrup will take you on an autumn trip through our favorite couple’s history 
+* Autumn in Manhattan: 
+  Pumpkin-spice bitters give a fall feeling to this classic bourbon-vermouth cocktail 
+* Orchard Mimosa: 
+  Champagne meets apple cider, garnished with a cinnamon-sugar rim
+* The Log Cabin: 
+  Apple brandy and maple syrup will take you on an autumn trip through our favorite couple’s history
