@@ -8,3 +8,9 @@
   Apple brandy and maple syrup will take you on an autumn trip through our favorite couple’s history
 
 **Nonalcoholic substitutes for all spirits are available upon request.**
+- Coca cola
+- Lemon juice
+- Sprite
+- Fanta
+- Tea (hot/cold)
+- Cofee (hot/cold)
